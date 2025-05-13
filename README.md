@@ -1,1 +1,1 @@
-![image](https://github.com/user-attachments/assets/00f47966-4359-4e20-a568-3715b36ff143)
+![Без названия (2)_imresizer](https://github.com/user-attachments/assets/cbdaf24e-2afc-4f9f-b8eb-a8dd9fc721f7)
